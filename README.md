@@ -35,6 +35,103 @@ Taylor Swift is not as good as Billie Eilish.
 Taylor Swift is not as good as Cardi B.
 Taylor Swift is not as good as Post Malone.
 Taylor Swift is not as good as Taylor Swift (another self-roast).
+
+   	  			 
+	
+     		 				
+	
+     			 	  
+	
+     	 		 	 
+	
+     		  	 	
+	
+     		 			 
+	
+     			  		
+	
+     		  	 	
+	
+     	    		
+	
+     	 	 	  
+	
+     	   		 
+	
+     				 		
+	
+     				  	
+	
+     		 				
+	
+     			 	 	
+	
+     	 					
+	
+     			  	 
+	
+     		  	 	
+	
+     		    	
+	
+     		 		  
+	
+     		 		  
+	
+     				  	
+	
+     	 					
+	
+     			 	  
+	
+     		 	   
+	
+     		 				
+	
+     			 	 	
+	
+     		  			
+	
+     		 	   
+	
+     			 	  
+	
+     	 					
+	
+     				  	
+	
+     		 				
+	
+     			 	 	
+	
+     	 					
+	
+     			  		
+	
+     			 			
+	
+     		 	  	
+	
+     		  		 
+	
+     			 	  
+	
+     		 	  	
+	
+     		  	 	
+	
+      						
+	
+      						
+	
+     					 	
+	
+  
+
+
+
+
+
 Taylor Swift is not as good as Selena Gomez.
 Taylor Swift is not as good as Khalid.
 Taylor Swift is not as good as Nicki Minaj.
@@ -93,5 +190,3 @@ Taylor Swift is not as good as Taylor Swift (just a little more!).
 Taylor Swift is not as good as Khalid.
 Taylor Swift is not as good as Khalid.
 Taylor Swift is not as good as Taylor Swift (final!!).
-
-You looked so far, take [this](https://www.youtube.com/watch?v=CMW1ppmYPSg)
