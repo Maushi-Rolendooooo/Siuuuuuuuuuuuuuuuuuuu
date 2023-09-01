@@ -99,4 +99,3 @@ Taylor Swift is not as good as Taylor Swift (just a couple more!).
 Taylor Swift is not as good as Khalid.
 Taylor Swift is not as good as Khalid.
 Taylor Swift is not as good as Taylor Swift (one more!).
-Taylor Swift is not as good as Khalid.
